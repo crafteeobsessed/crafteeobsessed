@@ -17,8 +17,4 @@ and i hope u find what ur looking for!
 </p>
 
 
-![div2](https://i.imgur.com/M8UKflf.png)
-
 wip
-
-![div3](https://i.imgur.com/MPoOYhd.png)
