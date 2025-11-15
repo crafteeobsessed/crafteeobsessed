@@ -17,4 +17,4 @@ and i hope u find what ur looking for!
 </p>
 
 
-wip
+$${\color{586ABE}craftee \space kin \space ・ \space minor}$$
