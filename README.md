@@ -16,5 +16,14 @@ and i hope u find what ur looking for!
 <img src="https://readme-typing-svg.demolab.com?font=Tiny5&size=30&duration=1250&pause=1000&color=70E6CE&center=true&width=435&lines=minecraft+but,;there+are+more+hearts!"/>
 </p>
 
+<details> 
+  
+ <summary> this account is : </summary>
 
-$${\color{586ABE}craftee \space kin \space ・ \space minor}$$
+` spam follower account `
+
+` also known as @rblxbedwars, @illseeyouinhell and @acookiegod (soon) `
+
+` block if unwanted `
+
+</details>
