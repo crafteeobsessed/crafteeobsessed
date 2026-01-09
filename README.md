@@ -18,12 +18,12 @@ and i hope u find what ur looking for!
 
 <details> 
   
- <summary> this account is : </summary>
+ <summary> you may : </summary>
 
-` spam follower account `
+` c+h freely unless stated otherwise `
 
-` also known as @rblxbedwars, @illseeyouinhell and @acookiegod (soon) `
+` interact by whispering `
 
-` block if unwanted `
+` be my friend or sign my ata `
 
 </details>
