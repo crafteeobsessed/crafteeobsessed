@@ -24,12 +24,7 @@ and i hope u find what ur looking for!
 
 ` interact by whispering `
 
-` be my friend or sign my ata `
+` be my friend or sign my ata (wip) `
 
 </details>
 
-IF YOUR SEEING THIS, YOU HAVE THE CHANCE TO GET A FREE CUSTOM MADE GIT FROM ME!!!
-THIS IS UNTIL JAN 20. WHISP ME UR DISC USER AND GITHUB!
-THEN ILL SPIN A WHEEL.
-
-THANKS!!
